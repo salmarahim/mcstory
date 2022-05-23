@@ -7,3 +7,6 @@ he began visiting often.
 
 the crocodile and monkey became very good friends. but the crocodile's wife 
 wanted to eat the monkey.
+
+
+the crocodile s wife did not like the monkey
