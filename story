@@ -4,3 +4,6 @@ of the river and took rest uner the berry tree.
 
 the monkey shared some berries with the crocodile. the crocodile loved them.
 he began visiting often.
+
+the crocodile and monkey became very good friends. but the crocodile's wife 
+wanted to eat the monkey.
